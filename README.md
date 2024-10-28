@@ -18,4 +18,4 @@ Pessoas interessadas em consumir de forma consciente, valorizando produtos que r
 
 Integrantes:
 <br>
-Adolfo Kentaro Hada/rm556884, Bruno Otavio Silva De Oliveira/rm556196, Luiz Fernando de Aragão Souza/555561, Marcello de Freitas Moreira/rm557531
+Adolfo Kentaro Hada/rm556884, Bruno Otavio Silva De Oliveira/rm556196, Guilherme Flores Pereira de Almeida/554948 Luiz Fernando de Aragão Souza/555561, Marcello de Freitas Moreira/rm557531
